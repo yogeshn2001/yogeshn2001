@@ -18,7 +18,7 @@ Follow me on [LinkedIn](https://www.linkedin.com/in/yogesh-narasimhaiah)
 
 - 📫 How to reach me **yogeshn5959@gmail.com**
 
-- 📄 Know about my experiences: [Resume](https://drive.google.com/file/d/1Dv_k5xm_tCsKDD1ysY9dYZ1BuOEeInRu/view?usp=sharing)
+- 📄 Know about my experiences: [Resume](https://drive.google.com/file/d/11S9UAtF16wtidh55627YMVDGP4mWkemp/view?usp=sharing)
 
 
 
