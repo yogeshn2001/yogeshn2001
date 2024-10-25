@@ -8,15 +8,13 @@ Follow me on [LinkedIn](https://www.linkedin.com/in/yogesh-narasimhaiah)
 
 - 🔭 I’m currently working on **Cryptography**
 
-- 🌱 I’m currently learning **CyberSecurity**
+- 🌱 I’m currently looking for opportunities in **Techworld**
 
--  🎓I'm currently studying in **Dublin Business School, Dublin**
+-  🎓I'm completed my Master's in **Dublin Business School, Dublin**
 
 - 🎓I completed my Bachelor's in **Jain University, Bengaluru**
 
-- 💬 Ask me about **Cryptography, Digital Forensics**
-
-- 📫 How to reach me **yogeshn5959@gmail.com**
+- 📫 How to reach me **yogeshn8088@gmail.com**
 
 - 📄 Know about my experiences: [Resume](https://drive.google.com/file/d/11S9UAtF16wtidh55627YMVDGP4mWkemp/view?usp=sharing)
 
