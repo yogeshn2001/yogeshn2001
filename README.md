@@ -6,7 +6,7 @@
 
 Follow me on [LinkedIn](https://www.linkedin.com/in/yogesh-narasimhaiah)
 
-- 🔭 I’m currently working on **Cryptography**
+
 
 - 🌱 I’m currently looking for opportunities in **Techworld**
 
